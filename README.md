@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-Star purpose this side
+Star purpose this side.
